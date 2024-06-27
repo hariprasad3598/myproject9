@@ -1,0 +1,4 @@
+Most of us have childhood memories of gaping at our elders in wonder when they narrated to us the amusing fables of Aesop, the picturesque fairy tales, the funny anecdotes, the lyrical short stories, and so on. Classic bedtime stories take us into the world of imagination. These short stories are identified with brevity and compact narrative. Vedantu brings forth some of the most amazing kids' stories with colourful illustrations to make the most of the leisure reading of kids. 
+
+
+The heightened representations of reality can be seen in fairy tales. When children hear or read A Lac Of Rupees For A Piece Of Advice, they begin to imagine a world that is beyond what they can now see. This promotes imagination development. The skill is further improved by the visual fairytale novels and movie adaptations. A lac of Rupee is one such must read Indian tale.
